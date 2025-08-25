@@ -1,1 +1,3 @@
 # D121231116-MOBILE2025-W1
+Nama : Muh Imam Saleh Djamal
+NIM  : D121231116
